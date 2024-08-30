@@ -1,4 +1,5 @@
-## Hi there 👋
+## Fala meu 10! Já orou hoje?
+qual foi pai, vc vive sem se alimentar? 
 
 <!--
 **Gus1322/Gus1322** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
